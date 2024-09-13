@@ -5,7 +5,7 @@
 - 📫 How to reach me pelo instagram
 - 😄 Pronouns: ele/dele
 - ⚡ Fun fact: não sei
-!{gif(https://tenor.com/pt-BR/view/communism-gif-2608630265232208833)}
+!{gif(https://tenor.com/pt-BR/view/communism-gif-2608630265232208833)}!
 <!---
 churrascodegato/churrascodegato is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
